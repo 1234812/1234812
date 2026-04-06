@@ -5,7 +5,7 @@ BE WARNED
 
 <img width="250" height="491" alt="image" src="https://github.com/user-attachments/assets/d9af8426-6567-451d-a77b-25775bfe688a" />
 
-I might say a lot of swearing when confident
+I may say a lot of swearing when confident
 
    This is me btw
    
