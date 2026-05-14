@@ -3,7 +3,7 @@ Yooooo!!!1!!
 
 BE WARNED
 
-<img width="250" height="491" alt="image" src="https://github.com/user-attachments/assets/d9af8426-6567-451d-a77b-25775bfe688a" />
+<img width="350" height="491" alt="image" src="https://github.com/user-attachments/assets/d9af8426-6567-451d-a77b-25775bfe688a" />
 
 I say a lot of swearing when confident
 
